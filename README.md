@@ -1,0 +1,1 @@
+# KurtGalbraith StratCamp Git account
